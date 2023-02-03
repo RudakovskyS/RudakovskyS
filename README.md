@@ -1,16 +1,10 @@
-### Hi there 👋
 
-<!--
-**RudakovskyS/RudakovskyS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](https://user-images.githubusercontent.com/82121272/216679956-89e9386d-9861-4e6d-ab5a-5b44add2a8a1.gif)
 
-Here are some ideas to get you started:
+## I'm a third year BSTU student. There is nothing more to say about it.
+### Interested in any kind of activity.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me:![icons8-telegram-app-48](https://user-images.githubusercontent.com/82121272/216679094-79d3c94f-275f-440a-b3c5-74884ce44588.png) Telegram @nudaisho
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+#### You can reach me out by [LinkedIn](https://www.linkedin.com/in/stepan-rudakovsky-9277251ba/)
+##### Have a good day.
+
+![0ggw9lsq](https://user-images.githubusercontent.com/82121272/216682603-3ea73715-6851-4ddd-9cb0-ad01cea70158.gif)
