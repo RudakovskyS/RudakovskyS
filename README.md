@@ -1,7 +1,7 @@
 
 ![](https://user-images.githubusercontent.com/82121272/216679956-89e9386d-9861-4e6d-ab5a-5b44add2a8a1.gif)
 
-## I'm a third year BSTU student which is a reason to hate myself. There is nothing more to say about it.
+## I'm a fourth year BSTU student which is a reason to hate myself. There is nothing more to say about it.
 
 #### You can reach me out by [LinkedIn](https://www.linkedin.com/in/stepan-rudakovsky-9277251ba/)
 ##### Have a good day.
